@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Rajesh Vairavan
 
-I'm glad you are here. I plan to talk about ...
+Thank you for visiting my webpage.
